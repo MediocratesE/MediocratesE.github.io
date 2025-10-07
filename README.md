@@ -1,1 +1,0 @@
-# MediocratesE.github.io
